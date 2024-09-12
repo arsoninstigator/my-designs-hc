@@ -8,4 +8,6 @@ i use pacdora to create mockups to visualize stuff for my own small business but
 
 ![image](https://github.com/user-attachments/assets/a1c34d21-2349-43e9-9211-c08dfd433ada)
 
+find the rendering for this cupcake model on [printables](https://www.printables.com/model/1005289-cupcake)
+
 
